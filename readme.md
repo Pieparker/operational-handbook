@@ -1,6 +1,5 @@
 # Introduction
-Congratulations on purchasing your very own, one of a kind Pie!
- This operational handbook aims to outline how to get the best out of your Pie.
+Congratulations on purchasing your very own, one of a kind Pie! This operational handbook aims to outline how to get the best out of him.
 
 # What are your primary goals as a human being?
 - To be joyous and bring joy. If shit hits the fan, we'll trudge through it together.
