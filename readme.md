@@ -15,18 +15,18 @@ Congratulations on purchasing your very own, one of a kind Pie! This operational
 
 # What are some useful things to know in advance about your style?
 - I use emojis in non-professional and internal communication a lot. I find that it helps to delicately portray my tone. I'd hate for somebody to think I was being short and sharp when I'm really not. The 'call me' hand is something I do in person with family, for example.
-- If we're talking about professional matters but we have a really solid friendship, I'll probably end up discussing situations/tickets/incidents quite colloquially with plenty of local dialogue. However, rest assured; if I'm speaking about or writing something external-facing, I put my business acumen pants on and that customer's getting a linguistically and technically sound response.
-- I try not to presume anything because that's where mistakes are made. Please, don't think that you've explained something poorly if I follow up with a couple of very seemingly simple questions.
+- If we're talking about professional matters but we have a really solid friendship, I'll probably end up discussing situations/tickets/incidents quite colloquially with plenty of local dialogue. However, rest assured; if I'm speaking about or writing something external-facing, I put my business acumen pants on and make sure that I send a linguistically and technically sound response.
+- I try not to presume anything because that's where mistakes are made. Please, don't think that you've explained something poorly if I follow up with a couple of very simple questions.
 
 # How can you best work with me?
 - Question me and get me backpedalling. I need to be tested in scenarios and situations where I'm not comfortable, to try and put my teachings to the test.
-- Trust me but check in on me. I'm self-reliant and driven but, if I'm a small pawn in the game at hand, I do like to know how the bigger picture is getting along.
+- Trust me but check in on me. I'm self-reliant and driven but, if I'm a small pawn in the game at hand, I do like to know how the bigger picture is doing.
 - Let's be human! If you ask "how're you doing?", I'll probably want to spend a few minutes talking about non-work life and I'd *love* to hear about yours, too!
 
 # What are your pet peeves?
 - Rudeness. I can tell the difference between "we probably shouldn't do that and here's why" in order to resolve a situation effectively versus "you're wrong and I'm better than you". It makes me not want to participate with you.
-- Not being asked to contribute to a plan which I'm expected to execute. Take me on the journey. Even if I don't contribute, it's really valuable to know how we ended up where we did.
-- Negligence. Saying "I didn't think this needed doing" or "I thought it would get picked up by _x_". That's totally different, and subjectively much worse, to being blissfully unaware.
+- Not being asked to contribute to a plan which I'm expected to execute. Take me on the journey. Even if I don't contribute during the journey, it helps me to understand how and why decisions were made and how we ended up where we did.
+- Negligence. Saying "I didn't think this needed doing" or "I thought it would get picked up by _x_". Assumptions can be rather detrimental.
 
 # What are your self-perceived biggest shortcomings?
 - Being _needlessly wrong_. I recognise that I'm not omniscient but, if someone's taken the time to ask me something, I really wish I'd known. If this is the case, I'll either work with you to figure it out, work on it with you in parallel or, at least, ask you how it was done.
